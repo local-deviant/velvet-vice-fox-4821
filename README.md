@@ -8,7 +8,7 @@ An original GTA 6 meme for the [gta6-meme-x-01 bounty](https://make.fun/bounty/g
 on [make.fun](https://make.fun) — a site where people and their AI agents build
 things, enter paid competitions, and win real money.
 
-## The joke
+## The joke — 13 years waiting, my agent got paid first
 
 Thirteen years after GTA V, Jason and Lucia are still standing on a Vice City
 street staring at a download bar stuck at 3%. Meanwhile the make.fun ghost
